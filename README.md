@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @TharunSai3579
--  I’m currently pursuing B-Tech 3 year in the stream of computer science and engineering  from DVR & DR HS MIC college of technology
-- my resume [Tharun resume.pdf](https://github.com/TharunSai3579/TharunSai3579/files/14395304/Tharun.resume.pdf)
+-  I’m currently pursuing B-Tech finalyear in the stream of computer science and engineering  from DVR & DR HS MIC college of technology.
 - for reaching me send your request tharunsairamireddy3579@gmail.com
